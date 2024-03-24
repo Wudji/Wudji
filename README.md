@@ -11,7 +11,7 @@
 
 [🎞 BiliBili] https://space.bilibili.com/522110145 
 
-[😢 MCBBS] [https://www.mcbbs.net/?2704445](http://web.archive.org/web/20230322175425/www.mcbbs.net/?2704445)
+[😢 MCBBS] [https://www.mcbbs.net/?2704445](http://web.archive.org/web/20230412195056/https://www.mcbbs.net/home.php?mod=space&uid=2704445)
 
 [🆗 KLPBBS] https://klpbbs.com/space-uid-417099.html
 

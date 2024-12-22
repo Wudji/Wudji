@@ -7,7 +7,7 @@
 🌱 Minecraft mods, modpacks, KubeJS docs and some small programs.
 
 ## 🔗 Links
-[❤ Afdian] https://afdian.net/a/Wudji_XPlusmodpack
+[❤ Afdian] https://afdian.com/a/Wudji_XPlusmodpack
 
 [🎞 BiliBili] https://space.bilibili.com/522110145 
 
